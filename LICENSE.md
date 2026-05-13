@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS template with ultimate CapCut for macOS Template | shortcut-customization + voice-enhancement. Featuring shortcut-customization and
 
 
 
